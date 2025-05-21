@@ -102,6 +102,6 @@ Results
 Contributors
 	•	Fatimaalzahraa Mohamed
 Supervisor: Dr. Khaled Elgeneidy
-[Faculty of Engineering, Civil Dept.]
+[Faculty of Engineering, Electrical Dept.]
 
 ⸻
